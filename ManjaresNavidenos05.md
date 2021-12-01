@@ -4,7 +4,7 @@
 - 🧂Sal al gusto 
 
 ### Procedimientos:
-1. jfljdlfd
+1. Rayar los guineos, las yautías y la calabaza
 2. djfljdsklfjdlfjks
 3. jfdjfldf
 4. 
