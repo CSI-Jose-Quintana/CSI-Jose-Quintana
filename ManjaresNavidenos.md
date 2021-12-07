@@ -1,5 +1,10 @@
+<div align="center">
+
 # Manjares Navideños
 ## Pasteles de masa
+
+</div>
+
 ### Ingredientes:
 #### Para la masa:
 - 7 libras de yautía blanca
