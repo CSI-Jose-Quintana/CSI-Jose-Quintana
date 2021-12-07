@@ -8,7 +8,7 @@
 </div>
   
 ### Ingredientes:
-- ***1 1/2** tazas de pasas
+- ***1 1/2*** tazas de pasas
 - 🧂Sal al gusto 
 
 ### Procedimientos:
