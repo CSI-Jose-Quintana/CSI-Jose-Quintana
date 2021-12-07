@@ -17,7 +17,3 @@
 #### Referencias:
 https://www.recetaspuertorico.com/recetas/pasteles-de-masa/
 
-
-
- https://user-images.githubusercontent.com/88497049/145036123-5dbaffea-4e6f-4fc6-9230-a0fc92f1bb99.mp4
-
