@@ -24,5 +24,6 @@
 13. Envuelve el pastel en papel pergamino colocándolo diagonalmente. 
 14. Coloca 2 pasteles juntos y amarralos con hilo de cocinar. 
 
+<br>
 #### Referencias:
-🥛
+https://www.recetaspuertorico.com/recetas/pasteles-de-masa/
