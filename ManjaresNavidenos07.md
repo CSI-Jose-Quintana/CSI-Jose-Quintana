@@ -5,10 +5,16 @@
 ## Pasteles de masa
 
 
-
 ### Ingredientes:
-- 🧂 Sal a gusto
+- **7** libras de yautía blanca
+- 🍌**4** libras de guineos verdes
+- __1/4__ libra de calabaza
+- __1 1/4__ tazas de aceite de achiote
+- 🧂 sal a gusto
 
+### Procedimientos:
+1. dfdkjfldjflksdjlfs
+2. 
 
 
 #### Referencias:
