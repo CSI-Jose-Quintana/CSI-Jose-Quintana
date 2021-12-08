@@ -1,5 +1,11 @@
+<div align="center">
+ 
+<img src="https://elcalderitodeotilia.com/wp-content/uploads/2017/12/fullsizeoutput_3110.jpeg" width="520" height="374" />
+
 # Manjares Navideños
 ## Pasteles de masa
+</div>
+
 ### Ingredientes:
 - **7** libras de yautía blanca
 - 🍌**4** libras de guineos verdes
@@ -24,6 +30,10 @@
 13. Envuelve el pastel en papel pergamino colocándolo diagonalmente. 
 14. Coloca 2 pasteles juntos y amarralos con hilo de cocinar. 
 
+### Video:
+- https://www.youtube.com/watch?v=zsk1DIeE05Y&t=854s
+
 <br>
+
 #### Referencias:
 https://www.recetaspuertorico.com/recetas/pasteles-de-masa/
